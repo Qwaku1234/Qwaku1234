@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity and web deverlopment
 - 🌱 I’m currently learning computer science and engineering
 - 💞️ I’m looking to collaborate on AI projets or web deverlopment projects
-- 📫 brightgyamera@gmail.com or snapchat @Qwakugyamera
+- 📫 brightgyamera333@gmail.com or snapchat @Qwakugyamera
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
